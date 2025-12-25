@@ -1,9 +1,28 @@
-<p align="center">
+<div align="center">
+ 
+
+
+
+
+
+
+  <img align="left" src="https://files.catbox.moe/ambp5x.png"> ${\textsf{\color{#53669a}꒰ ✉︎ ꒱}}$
+
+${\textsf{\color{#C54B77}✩}}$ [prns.cc](https://pronouns.cc/@BIGSH0TAUTOS) ${\textsf{\color{#537f9a}//}}$ [tumblr](https://madkit.atabook.org) ${\textsf{\color{#53949a}//}}$ [spacehey](https://spacehey.com/bigshotautos)
+
+${\textsf{\color{#FF94AC}❝ COULD I}}$ ${\textsf{\color{#DDA7AF}INTEREST YOU IN}}$ ${\textsf{\color{#DBBD9E}EVERYTHING, ALL OF}}$ ${\textsf{\color{#FAD479}THE TIME ? ❞}}$
+
+${\textsf{\color{#FAD479}　﹒  ◠}}$  ${\textsf{\color{#FAD479}　  ✩    }}$ ${\textsf{\color{#DBBD9E}　       ⊹    ﹒}}$ ${\textsf{\color{#DDA7AF}　  ◠}}$  ${\textsf{\color{#FF94AC}　　﹒  }}$
+
 <img src="https://files.catbox.moe/y1az8t.png"><img src="https://files.catbox.moe/bee8cy.png"><img src="https://files.catbox.moe/bhxsfe.png">
+
+${\textsf{\color{#FF94AC}☆}}$ ${\textsf{\color{#F09CAD}ˇ ‿ @}}$ ${\textsf{\color{#E2A5AF}᎓}}$  ${\textsf{\color{#D3ADB0}spamton}}$  ${\textsf{\color{#D3B6A9} or }}$   ${\textsf{\color{#E0C099}jamison !}}$  ${\textsf{\color{#EDCA89}﹢ 𐂯}}$  ${\textsf{\color{#7e9a53}}}$
+
+${\textsf{\color{#FAD479}☆}}$  ${\textsf{\color{#EDCA89}RP please}}$  ${\textsf{\color{#E0C099}int!}}$   ${\textsf{\color{#D3B6A9}I am always}}$  ${\textsf{\color{#E2A5AF}open for}}$  ${\textsf{\color{#FF94AC}interaction =)}}$  ${\textsf{\color{#639a53}}}$  ${\textsf{\color{#7e9a53}}}$ 
+
+${\textsf{\color{#FF94AC}☆}}$  ${\textsf{\color{#FF94AC}DNI if}}$  ${\textsf{\color{#DB7E99}:}}$   ${\textsf{\color{#E698AA}under 14,}}$  ${\textsf{\color{#E8A59D}or proship.}}$  ${\textsf{\color{#E0A572}i}}$  ${\textsf{\color{#D9A446}block}}$  ${\textsf{\color{#D1A41B}freely!}}$ 
 <p align="center">
-ˇ ‿  @ ⠀⠀spamton⠀⠀ <ins>&&</ins> ⠀⠀jamison ! ﹢   𐂯
-<p align="center">
-<ins>he</ins> it  ⠀⠀ <img src="https://pixels.crd.co/assets/images/gallery68/cd89185b.gif?v=29416114">﹏⠀⠀  please int! 𖦹
-<p align="center">
-<img src="https://files.catbox.moe/axpr1p.png">
-<p align="center">
+  <img src="https://files.catbox.moe/0eh1dx.gif">
+</p>
+
+
