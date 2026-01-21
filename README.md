@@ -2,7 +2,11 @@
  
 
 
-
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=b2lc3p7ksacuj0kc45eynkrex&cover_image=true&theme=spotify-embed&show_offline=false&background_color=ededed&interchange=false&profanity=false&bar_color=c21414&bar_color_cover=true&mode=light">
+  </a>
+</p>
 
 
 
